@@ -10,6 +10,7 @@ stamp / blinkie collection!! more will be added overtime >_<
 ![](https://64.media.tumblr.com/2e591b5df6dff4160229f275969c1834/c16e50f1233d8914-aa/s100x200/362bcb709f9152c178aebfbd564c5a51fca02ab6.pnj) 
 ![](https://64.media.tumblr.com/c8d9bb960e87c4e4c42f9cb732bcb9b4/c16e50f1233d8914-d3/s100x200/7fe6257a7d34d6f64e6b8feee21a75d0fea8add6.gifv)
 ![](https://64.media.tumblr.com/d091b0bf6f4a6719ed271ffdf2cd3f8d/ae2cd586a1bbcaf6-a9/s100x200/7b63e73dd5fbfb0483484b11f128d2732ebbfe93.gifv)
+![](https://64.media.tumblr.com/2af32dc0f6cb1b8335113ec88ee60c90/70b0e6cc7ac58d9e-1c/s100x200/2edff1f13d394ace00a9ac8413c1ce97e8759822.gifv)
 ![](https://64.media.tumblr.com/313a5235b1e0026ba3cfc52e1479ae9b/88feaf116c820c5c-1a/s100x200/3be713c5298b875f8757c3d122613fa0f9d3f671.pnj)
 ![](https://64.media.tumblr.com/248db49f02f3dd890b0ef27b097e2d52/70b0e6cc7ac58d9e-04/s100x200/4fbe35e695c192fc70337d9f26f762b851b8f0d9.gifv)
 ![](https://64.media.tumblr.com/9a60ddc900a3b1aa0250b32e09c2a63e/3daed99d320f5d70-87/s100x200/1adc93f1fc4c6947e0d31d117eaeaf45e57c0a47.gifv)
