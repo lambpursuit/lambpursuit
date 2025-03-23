@@ -46,5 +46,8 @@ stamp / blinkie collection!! more will be added overtime >_<
 ![](https://64.media.tumblr.com/34c3e869f39e7b7a11dba3cb1f10a351/27f4388618e0f700-8f/s250x400/89f0c7fee40aa26848a7e00f1a7fe8d52be18f67.gifv)
 ![](https://64.media.tumblr.com/dcbd07971dd8ff628ccd819701087bef/96c3111033dfa3ab-26/s250x400/fbc5265b73a5557915895bcbc91db03b7d7a1126.gifv)
 ![](https://64.media.tumblr.com/412c0464f2cb4e0dd61559a380820a44/96c3111033dfa3ab-cf/s250x400/6d6431909581adf9905fe903608213f1bed7a202.gifv)
+![](https://files.catbox.moe/8zxrq6.gif) 
+![](https://blinkies.cafe/b/display/0122-hsbreath.gif)
+![](https://files.catbox.moe/jenyqs.gif)
 
 ![](https://64.media.tumblr.com/22fc26bb99e2984d7b74d707f8612b90/62f9a1745b7acde0-cd/s640x960/a4a4e051d9292cc5e6cbbd064ec121abdabb5dfa.pnj)
