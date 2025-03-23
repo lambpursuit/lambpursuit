@@ -7,3 +7,4 @@ stamp collection!! more will be added overtime >_<
 ![](https://64.media.tumblr.com/2e591b5df6dff4160229f275969c1834/c16e50f1233d8914-aa/s100x200/362bcb709f9152c178aebfbd564c5a51fca02ab6.pnj) 
 ![](https://64.media.tumblr.com/d98427d67cb8f420c398979ddb53d72c/c16e50f1233d8914-98/s100x200/f45c05ada6b85bc42f3891debe363d419de002fa.gifv) 
 ![](https://64.media.tumblr.com/c8d9bb960e87c4e4c42f9cb732bcb9b4/c16e50f1233d8914-d3/s100x200/7fe6257a7d34d6f64e6b8feee21a75d0fea8add6.gifv)
+![](https://64.media.tumblr.com/665d8ed0fbb9a70775a329308ae00e04/47dba9724143cb2a-31/s250x400/02e0cf3f5eeda7ca3fef5354188fcb8582a9c511.gifv)
