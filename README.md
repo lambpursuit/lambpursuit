@@ -1,5 +1,4 @@
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=lambpursuit&color=red&label=fans"> </p>
-***
 stamp / blinkie collection!! more will be added overtime >_<
 
 ![](https://64.media.tumblr.com/330810c3efd67ad5e17e0134815f3ed2/c16e50f1233d8914-2a/s100x200/aae4a2089cb46a9fe063d1efd3df87e163fb9413.pnj)
