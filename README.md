@@ -1,4 +1,4 @@
-SIGN ATABOOK ![HERE!!!](https://lambpursuit.atabook.org/)
+SIGN ATABOOK [HERE!!!](https://lambpursuit.atabook.org/)
 ***
 stamp / blinkie collection!! more will be added overtime >_<
 
