@@ -1,6 +1,7 @@
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=lambpursuit&color=red&label=fans"> </p>
 stamp / blinkie collection!! more will be added overtime >_<
 
+![](https://private-user-images.githubusercontent.com/176349185/443063134-90be15e6-3b23-4a80-b8ed-a3fc206675bc.gif?jwt=eyJhbGciOiJIUzI1NiIsInR5cCI6IkpXVCJ9.eyJpc3MiOiJnaXRodWIuY29tIiwiYXVkIjoicmF3LmdpdGh1YnVzZXJjb250ZW50LmNvbSIsImtleSI6ImtleTUiLCJleHAiOjE3NDc2MDMzMTgsIm5iZiI6MTc0NzYwMzAxOCwicGF0aCI6Ii8xNzYzNDkxODUvNDQzMDYzMTM0LTkwYmUxNWU2LTNiMjMtNGE4MC1iOGVkLWEzZmMyMDY2NzViYy5naWY_WC1BbXotQWxnb3JpdGhtPUFXUzQtSE1BQy1TSEEyNTYmWC1BbXotQ3JlZGVudGlhbD1BS0lBVkNPRFlMU0E1M1BRSzRaQSUyRjIwMjUwNTE4JTJGdXMtZWFzdC0xJTJGczMlMkZhd3M0X3JlcXVlc3QmWC1BbXotRGF0ZT0yMDI1MDUxOFQyMTE2NThaJlgtQW16LUV4cGlyZXM9MzAwJlgtQW16LVNpZ25hdHVyZT1iODkxNWViMjdiMWFmNzAwZjlhOWMyMGM4OWViOTM4YjUxZGRhNjdkODU2ZjlhNDYzZDdhYmQ2YWM2OGI4YTZiJlgtQW16LVNpZ25lZEhlYWRlcnM9aG9zdCJ9.o-RVbfi3FzLMfkF1L_gKk7Z2LCGzsP5SaAnj5gAwgQM)
 ![](https://64.media.tumblr.com/330810c3efd67ad5e17e0134815f3ed2/c16e50f1233d8914-2a/s100x200/aae4a2089cb46a9fe063d1efd3df87e163fb9413.pnj)
 ![](https://64.media.tumblr.com/6b34690761d67bd085cc4df850433132/8006a162d7d5de58-e1/s100x200/cf1de72d1be848368cb47c9bb4b637a032fdff0a.gifv) 
 ![](https://64.media.tumblr.com/f8ba4e4523fa0901e58f6c6a0d9f6e25/70b0e6cc7ac58d9e-cc/s100x200/1030a6899ceb6081504735ae34e023d3a05b5e6f.gifv)
